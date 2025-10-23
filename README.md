@@ -23,7 +23,7 @@ Hackathons or coding challenges to solve real-world problems
 
 📫 How to Reach Me
 
-Email: vanikakommu18@gmail.com
+Email: kommuvanika1162@gmail.com
 LinkedIn: linkedin.com/in/vanika
 GitHub: You're already here! Check out my repositories below.
 
